@@ -7,6 +7,10 @@
 meow meow! 
 
 <p align="center"
+  
+❀ [strawpage](https://collegar.straw.page) ❀ [ata](https://collegar.atabook.org/) ❀
+
+<p align="center"
 
 ❀ she/he/they/it ❀ adult/18+ ❀ 
 
@@ -18,8 +22,8 @@ meow meow!
 
 <p align="center"
 
-#### check out my sites if u want!
+c+h enc/ok, pls whisp if seen in group
 
 <p align="center"
-  
-#### ❀ [strawpage](https://collegar.straw.page) ❀ [ata](https://collegar.atabook.org/) ❀
+
+read strawpage for more info
