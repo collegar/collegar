@@ -1,4 +1,10 @@
-<h3 align="center"><strong><i> ₍^. .^₎⟆  ❀ ｃｏｌｌｅ ❀  ₍^. .^₎⟆ </i></strong>
+<h3 align="center">
+        
+<strong><i> ₍^. .^₎⟆  ❀ ｃｏｌｌｅ ❀  ₍^. .^₎⟆ </i></strong>
+
+<p align="center"
+
+meow meow! 
 
 <p align="center"
 
