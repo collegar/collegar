@@ -3,10 +3,6 @@
 <strong><i> ₍^. .^₎⟆  ❀ ｃｏｌｌｅ ❀  ₍^. .^₎⟆ </i></strong>
 
 <p align="center"
-
-meow meow! 
-
-<p align="center"
   
 ❀ [strawpage](https://collegar.straw.page) ❀ [ata](https://collegar.atabook.org/) ❀
 
