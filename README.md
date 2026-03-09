@@ -18,7 +18,7 @@
 
 <p align="center"
 
-c+h enc/ok, pls whisp if seen in group
+c+h enc/ok, pls whisp/ask if seen in group
 
 <p align="center"
 
